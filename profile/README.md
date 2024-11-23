@@ -1,6 +1,5 @@
 <H1>Petite Health Check APK (Latest Version) Free Download For Android</H1>
 
-<img src="https://preview.redd.it/petite-health-check-video-game-v0-j9q8gq7bqyyd1.jpeg?auto=webp&s=b1ab73b4e5d771e039e15b1f64b117b1d1cbf19d" alt="Petite Health Check Video Game" />
 
 
 <h2> DOWNLOAD - <a href="https://droidcoast.com/petite-health-check-apk/"> Petite Health Check APK</a></h2>
