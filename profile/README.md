@@ -80,3 +80,6 @@
 <!-- wp:paragraph -->
 <p>Download <strong>Petite Health Check</strong> now on your mobile device and explore a unique blend of fun and wellness in your gaming adventure!</p>
 <!-- /wp:paragraph -->
+
+
+   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Petite-Health-Check-APK-DOWNLOAD)
